@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-my blog : https://www.yuque.com/xiangkongyue
+my blog : https://www.cnblogs.com/gundamff
